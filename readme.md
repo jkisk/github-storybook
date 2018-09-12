@@ -1,1 +1,1 @@
-Once upon a time there was a troll named Farble and he had a twin brother named Grable. Mlar was a beautiful troll that they both fell in love with.
+Once upon a time there was a troll named Farble and he had a twin brother named Grable. Mlar was a beautiful troll that they both fell in love with. Mlar had been admiring a beautiful ring in a store window and both brothers noticed her walking by. They both rushed into the store to buy the ring for Mlar. Farble pulled out his sword, and Grable revealed his amulet.
